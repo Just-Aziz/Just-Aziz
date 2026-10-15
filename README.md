@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Just-Aziz
-- 👀 I’m interested in building new impactful products. 
-- 💞️ I’m looking to collaborate on new startup projects
+- 👀 Building new impactful products. 
 - 📫 How to reach me : WhatsApp: +213549323193
 - 😄 Pronouns: He/Him
 
